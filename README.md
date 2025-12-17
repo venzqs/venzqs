@@ -1,6 +1,6 @@
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=your-github-venzqs&label=sillays+++&&color=dc143c)
+![](https://komarev.com/ghpvc/?username=your-github-venzqs&label=sillays+++&&color=d2c2cf)
 
 <img width="4000" height="1816" alt="ven is so coool guys" src="https://github.com/user-attachments/assets/05c69ebd-3960-42a5-90db-5bc56a7aeb4b" />
 
