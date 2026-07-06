@@ -1,6 +1,6 @@
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=your-github-venzqs&label=freakazoids+++&&color=9d3b5a)
+![](https://komarev.com/ghpvc/?username=your-github-venzqs&label=freakazoids+++&&color=eeeeee)
 
 ︶⁀✧⁀︶
  
@@ -8,7 +8,8 @@
 
 
 
-<img width="1091" height="1200" alt="image" src="https://github.com/user-attachments/assets/4858f2b3-8c48-4ba7-b5cf-ea83930b0c70" />
+<img width="735" height="662" alt="image" src="https://github.com/user-attachments/assets/61c96d9c-a4ed-4354-9b81-2e3a65b0b276" />
+
 
 
 
