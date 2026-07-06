@@ -1,6 +1,6 @@
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=your-github-venzqs&label=freakazoids+++&&color=eeeeee)
+![](https://komarev.com/ghpvc/?username=your-github-venzqs&label=freakazoids+++&&color=010101)
 
 ︶⁀✧⁀︶
  
