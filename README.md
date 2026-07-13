@@ -8,13 +8,4 @@
 
 
 
-<img width="510" height="489" alt="image_2026-07-13_042529916-removebg-preview" src="https://github.com/user-attachments/assets/236c4363-9422-483f-899c-26cb006ca6e3" />
-<img width="500" height="500" alt="image_2026-07-13_042551404-removebg-preview" src="https://github.com/user-attachments/assets/aec060b4-5e97-43dd-9e8b-8c15a867a934" />
-
-
-
-
-
-
-
-
+<img width="434" height="434"  alt="image_2026-07-13_042551404-removebg-preview__fliter--blackCurrant-and-mint__channel--all__mode--lighten" src="https://github.com/user-attachments/assets/c5253138-5f47-43b8-bccc-5b27d967d079"  /><img width="434" height="434" align="right" alt="image_2026-07-13_042529916-removebg-preview__fliter--blackCurrant-and-mint__channel--all__mode--lighten" src="https://github.com/user-attachments/assets/5ba684b5-bd61-4c07-8bc3-664d8120df12" />
