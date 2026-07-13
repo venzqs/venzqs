@@ -1,6 +1,6 @@
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=your-github-venzqs&label=‎+++&&color=292929)
+![](https://komarev.com/ghpvc/?username=your-github-venzqs&label=‎+++&&color=9cb7be)
 
 ︶⁀✧⁀︶
  
@@ -8,7 +8,10 @@
 
 
 
-<img width="735" height="662" alt="image" src="https://github.com/user-attachments/assets/61c96d9c-a4ed-4354-9b81-2e3a65b0b276" />
+<img width="510" height="489" alt="image_2026-07-13_042529916-removebg-preview" src="https://github.com/user-attachments/assets/236c4363-9422-483f-899c-26cb006ca6e3" />
+<img width="500" height="500" alt="image_2026-07-13_042551404-removebg-preview" src="https://github.com/user-attachments/assets/aec060b4-5e97-43dd-9e8b-8c15a867a934" />
+
+
 
 
 
