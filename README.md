@@ -1,6 +1,6 @@
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=your-github-venzqs&label=‎+++&&color=9cb7be)
+![](https://komarev.com/ghpvc/?username=your-github-venzqs&label=‎+++&&color=9a9aa6)
 
 ︶⁀✧⁀︶
  
@@ -8,4 +8,6 @@
 
 
 
-<img width="434" height="434" align="Left" alt="image_2026-07-13_042551404-removebg-preview__fliter--blackCurrant-and-mint__channel--all__mode--lighten" src="https://github.com/user-attachments/assets/c5253138-5f47-43b8-bccc-5b27d967d079"  /><img width="434" height="434" align="right" alt="image_2026-07-13_042529916-removebg-preview__fliter--blackCurrant-and-mint__channel--all__mode--lighten" src="https://github.com/user-attachments/assets/5ba684b5-bd61-4c07-8bc3-664d8120df12" />
+<img width="350" height="434" align="Left" alt="image_2026-07-13_042551404-removebg-preview__fliter--blackCurrant-and-mint__channel--all__mode--difference" src="https://github.com/user-attachments/assets/c9f79e6e-ab99-4c7d-8650-7f83eabfd3a0" /><img width="434" height="434" align="right" alt="image_2026-07-13_042529916-removebg-preview__fliter--blackCurrant-and-mint__channel--all__mode--difference" src="https://github.com/user-attachments/assets/9e568152-9ce3-4c75-a2b8-94623cdca579" />
+
+
