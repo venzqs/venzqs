@@ -16,6 +16,18 @@ $\color{#7ed6eb}{\textbf{m/w}}$
 
 [ᯠ˶   ᯄ](https://github.com/compliment-town)
 
-[♥︎](https://github.com/wisamiya) ‎ [♥︎](https://github.com/sweet-scar) ‎ [♥︎](https://github.com/stitched-scars) ‎ [♥︎](https://github.com/S0rr0wfull) ‎ [♥︎](https://github.com/tuloah) ‎ [♥︎](https://github.com/Appendice11) 
+ <details>
+    <summary> my friends !!</summary>
+    
+[lily](https://github.com/wisamiya)
+[tim](https://github.com/zombdisaster)
+[koda](https://github.com/Vamprizes)
+[rowan](https://github.com/Appendice11)
+[jay](https://github.com/tuloah)
+[aiko](https://github.com/stitched-scars)
+[byeol](https://github.com/sweet-scar)
+[aiko](https://github.com/stitched-scars)
+
+  </details></br>
 
 this looks way better on pc, sorry moblie users
