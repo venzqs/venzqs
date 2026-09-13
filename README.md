@@ -1,20 +1,23 @@
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=your-github-venzqs&label=𑄝꠹‎+++&&color=9a9aa6)
+![](https://komarev.com/ghpvc/?username=your-github-venzqs&label=𑄝꠹‎+++&&color=674921)
 
 ︶⁀✧⁀︶
  
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=sm%C3%B8llt%C3%B8m.w.&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
 
 
-$\color{#7ed6eb}{\textbf{m/w}}$
+$\color{#6e5f35}{\textbf{m/w}}$
  
 [zai](https://github.com/naibluver) [rae](https://github.com/fashlon)‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎  ‎  ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎  ‎ ‎‎‎ ‎♡︎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ [nav](https://github.com/Yaoigod) [cal](https://github.com/DASElN) 
 
-<img width="400" height="400" align="Left" alt="image_2026-07-13_042551404-removebg-preview__fliter--blackCurrant-and-mint__channel--all__mode--difference" src="https://github.com/user-attachments/assets/c9f79e6e-ab99-4c7d-8650-7f83eabfd3a0" /><img width="400" height="400" align="right" alt="image_2026-07-13_042529916-removebg-preview__fliter--blackCurrant-and-mint__channel--all__mode--difference" src="https://github.com/user-attachments/assets/9e568152-9ce3-4c75-a2b8-94623cdca579" />
+<img width="400" height="400" alt="ddssdsdsa" src="https://github.com/user-attachments/assets/1813013e-c5f5-46ee-a1d7-f7ae1ff7c78c" />
 
 
-[ᯠ˶   ᯄ](https://github.com/compliment-town)
+
+
+[👀](https://github.com/compliment-town)
+
 
  <details>
     <summary> my friends !!</summary>
@@ -28,6 +31,8 @@ $\color{#7ed6eb}{\textbf{m/w}}$
 [byeol](https://github.com/sweet-scar)
 [aiko](https://github.com/stitched-scars)
 
+
+  <img width="400" height="400" alt="image_2026-09-13_005949516" src="https://github.com/user-attachments/assets/8d6bc867-3018-48e5-b893-2d208c7d9582" />
+
   </details></br>
 
-this looks way better on pc, sorry moblie users
