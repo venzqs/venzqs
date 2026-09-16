@@ -31,6 +31,7 @@ $\color{#6e5f35}{\textbf{m/w}}$
 [byeol](https://github.com/sweet-scar)
 [aiko](https://github.com/stitched-scars)
 
+[ok koda!](https://fluffle.cc/venkoda)
 
   <img width="400" height="400" alt="image_2026-09-13_005949516" src="https://github.com/user-attachments/assets/8d6bc867-3018-48e5-b893-2d208c7d9582" />
 
