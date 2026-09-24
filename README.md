@@ -11,7 +11,10 @@ $\color{#6e5f35}{\textbf{m/w}}$
  
 [zai](https://github.com/naibluver) [rae](https://github.com/fashlon)‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎  ‎  ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎  ‎ ‎‎‎ ‎♡︎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ [nav](https://github.com/Yaoigod) [cal](https://github.com/DASElN) 
 
-<img width="400" height="400" alt="ddssdsdsa" src="https://github.com/user-attachments/assets/1813013e-c5f5-46ee-a1d7-f7ae1ff7c78c" />
+<img width="800" height="450" alt="ssstwitter com_1790290767514-ezgif com-optimize" src="https://github.com/user-attachments/assets/44aa9441-1868-4da9-a58e-1d9e70c4f2a3" />
+
+art by @zuristiie on twt
+
 
 
 
@@ -33,7 +36,7 @@ $\color{#6e5f35}{\textbf{m/w}}$
 
 [ok koda!](https://fluffle.cc/venkoda)
 
-  <img width="400" height="400" alt="image_2026-09-13_005949516" src="https://github.com/user-attachments/assets/8d6bc867-3018-48e5-b893-2d208c7d9582" />
+<img width="400" height="400" alt="ddssdsdsa" src="https://github.com/user-attachments/assets/1813013e-c5f5-46ee-a1d7-f7ae1ff7c78c" />
 
   </details></br>
 
