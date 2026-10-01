@@ -26,8 +26,7 @@ art by @zuristiie on twt
     <summary> my friends !!</summary>
     
 [lily](https://github.com/wisamiya)
-[tim](https://github.com/zombdisaster)
-[koda](https://github.com/Vamprizes)
+[dakoda <3](https://github.com/Vamprizes)
 [rowan](https://github.com/Appendice11)
 [jay](https://github.com/tuloah)
 [aiko](https://github.com/stitched-scars)
