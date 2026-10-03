@@ -29,9 +29,9 @@ dni bb breakers
 [dakoda <3](https://github.com/Vamprizes)
 [rowan](https://github.com/Appendice11)
 [jay](https://github.com/tuloah)
-[aiko](https://github.com/stitched-scars)
+[akio](https://github.com/stitched-scars)
 [byeol](https://github.com/sweet-scar)
-[aiko](https://github.com/stitched-scars)
+
 
 [ok koda!](https://fluffle.cc/venkoda)
 
