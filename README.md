@@ -13,7 +13,7 @@ $\color{#6e5f35}{\textbf{m/w}}$
 
 <img width="800" height="450" alt="ssstwitter com_1790290767514-ezgif com-optimize" src="https://github.com/user-attachments/assets/44aa9441-1868-4da9-a58e-1d9e70c4f2a3" />
 
-art by @zuristiie on twt
+[art](https://x.com/zuristiie/status/2050618240640909598?s=20) by [@zuristiie on twt](https://x.com/zuristiie)
 
 
 
