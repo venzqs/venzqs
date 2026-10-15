@@ -27,7 +27,7 @@ dni bb (boundaries breakers)
     
 [lily](https://github.com/wisamiya)
 [dakoda <3](https://github.com/Vamprizes)
-[rowan](https://github.com/Appendice11)
+[rowan . scarycat duo :)](https://github.com/Appendice11)
 [jay](https://github.com/tuloah)
 [akio](https://github.com/stitched-scars)
 [byeol](https://github.com/sweet-scar)
