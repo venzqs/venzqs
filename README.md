@@ -1,13 +1,13 @@
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=your-github-venzqs&label=𑄝꠹‎+++&&color=674921)
+![](https://komarev.com/ghpvc/?username=your-github-venzqs&label=𑄝꠹‎+++&&color=f4e8bb)
 
 ︶⁀✧⁀︶
  
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=sm%C3%B8llt%C3%B8m.w.&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
 
 
-$\color{#6e5f35}{\textbf{m/w}}$
+$\color{#cfe2bf}{\textbf{m/w}}$
  
 [zai](https://github.com/naibluver) [rae](https://github.com/fashlon)‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎  ‎  ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎  ‎ ‎‎‎ ‎♡︎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ [nav](https://github.com/Yaoigod) [cal](https://github.com/DASElN) 
 
@@ -19,25 +19,40 @@ $\color{#6e5f35}{\textbf{m/w}}$
 dni bb (boundaries breakers)
 
 
-[👀](https://github.com/compliment-town)
+[Ი𐑼ּ](https://github.com/compliment-town)
 
 
  <details>
     <summary> my friends !!</summary>
     
 [lily](https://github.com/wisamiya)
-[dakoda <3](https://github.com/Sylkota)
-[rowan . scarycat duo :)](https://github.com/Appendice11)
+<br>
+[dakoda](https://github.com/Sylkota)
+<br>
+<3 love uuu
+<br>
+[rowan](https://github.com/Appendice11)
+<br>
+scarycat duo :)
+<br>
 [jay](https://github.com/tuloah)
+<br>
 [akio](https://github.com/stitched-scars)
+<br>
 [byeol](https://github.com/sweet-scar)
-
+<br>
 
 [ok koda!](https://fluffle.cc/venkoda)
+<br>
+koda being weird! yo i need to update this. lazy.
+<br>
 
-and the universe said,
-"i love  you"
-because you are love.
+$\color{#b3e0ff}{\textbf{and the universe said,}}$
+<br>
+$\color{#b3e0ff}{\textbf{"i love  you"}}$
+<br>
+$\color{#b3e0ff}{\textbf{because you are love.}}$
+<br>
 ✰
 
   </details></br>
