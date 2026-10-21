@@ -35,7 +35,10 @@ dni bb (boundaries breakers)
 
 [ok koda!](https://fluffle.cc/venkoda)
 
-<img width="400" height="400" alt="ddssdsdsa" src="https://github.com/user-attachments/assets/1813013e-c5f5-46ee-a1d7-f7ae1ff7c78c" />
+and the universe said,
+"i love  you"
+because you are love.
+✰
 
   </details></br>
 
