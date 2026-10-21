@@ -27,9 +27,11 @@ dni bb (boundaries breakers)
     
 [lily](https://github.com/wisamiya)
 <br>
+sisssy , even tho her account banned.
+<br>
 [dakoda](https://github.com/Sylkota)
 <br>
-<3 love uuu
+<3 love uuu , my sharp
 <br>
 [rowan](https://github.com/Appendice11)
 <br>
