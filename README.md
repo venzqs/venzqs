@@ -43,6 +43,7 @@ scarycat duo :)
 <br>
 [byeol](https://github.com/sweet-scar)
 <br>
+all other my friends who don't have github, i love them all! #joy <3
 
 [ok koda!](https://fluffle.cc/venkoda)
 <br>
