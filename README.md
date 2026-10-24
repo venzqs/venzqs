@@ -11,7 +11,7 @@ $\color{#cfe2bf}{\textbf{m/w}}$
  
 [zai](https://github.com/naibluver) [rae](https://github.com/fashlon)‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎  ‎  ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎  ‎ ‎‎‎ ‎♡︎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ [nav](https://github.com/Yaoigod) [cal](https://github.com/DASElN) 
 
-thank you navi for the cute pfps. i lvoe the drawing szo muchhh, we're in snezhnaya ! 
+thank you [navi](https://github.com/Navistel) for the cute pfps. i lvoe the drawing szo muchhh, we're in snezhnaya ! 
 
 <img width="800" height="450" alt="ssstwitter com_1790290767514-ezgif com-optimize" src="https://github.com/user-attachments/assets/44aa9441-1868-4da9-a58e-1d9e70c4f2a3" />
 
